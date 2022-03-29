@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Gamil - abhirao9917@gmail.com, Twitter - @Abhirao9917Rao, Instagram - raoji6791
 - 😄 Pronouns: He/His 😊
 - ⚡ Fun fact: I spend almost 4 hours a day to understand my codes Errors 😥
--->
